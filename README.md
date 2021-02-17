@@ -67,3 +67,12 @@ http://www.mrunderwood.co.uk/news/sonic-graffiti/
 A few folks asking how these work. They’re really easy: Stream or play the album in question and follow me and the relevant twitterer(s) and watch the tweets in real time. Ask questions/ share memories etc using #timstwitterlisteningparty. Nowt complicated. That’s it ; )
 
 https://timstwitterlisteningparty.com/
+
+--------
+
+ThoseEyes
+
+Twitch streaming experiments in live 3D:
+
+https://www.twitch.tv/videos/916798235 
+
