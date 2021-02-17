@@ -59,3 +59,11 @@ Mr. Underwood
 I was recently commissioned by VIVID and Capsule to produce and install eight pieces of Sonic Graffiti in Digbeth, Birmingham. These are sound objects, embedded in the built environment. 
 
 http://www.mrunderwood.co.uk/news/sonic-graffiti/
+
+------------
+
+## Tim's Twitter Listening Party
+
+A few folks asking how these work. They’re really easy: Stream or play the album in question and follow me and the relevant twitterer(s) and watch the tweets in real time. Ask questions/ share memories etc using #timstwitterlisteningparty. Nowt complicated. That’s it ; )
+
+https://timstwitterlisteningparty.com/
