@@ -26,6 +26,20 @@ https://www.youtube.com/playlist?list=PLKzJbXgLfe4Jd9H14gupd72pGivczhpMS
 
 -----------
 
+##  FULL PINK MOON: Opera Povera from Quarantine
+
+Opera Povera presents FULL PINK MOON: Opera Povera in Quarantine, an international durational livestream performance of visionary composer Pauline Oliveros’ open-form The Lunar Opera; Deep Listening For_Tunes.
+
+Featuring an inclusive and collaborative score by Oliveros, Full Pink Moon allows each performer to actively determine all creative choices: when and how to perform, choose cues, characters, costumes, and props, and harness creative performance power to reach out and share with each other in a time of separation and quarantine with a collective structure that Oliveros defined as “dedicated to tolerance and freedom.”
+
+This event was created by Sean Griffin, founder of Opera Povera and a collaborator of Oliveros, and Los Angeles musician and producer Madeline Falcone, as an artistic and financial call to arms against the COVID-19 pandemic and as a response to the continued social distancing and lockdowns worldwide.
+
+Said Griffin, “We are in a time of isolation but we can be deeply connected right now by that separation we feel by reaching out. It is important to understand that Oliveros’ opera is not a spectator’s opera, rather, it is a vast participatory operatic landscape of moondrunk people in a fictional space of free expression and listening.”  
+
+https://youtu.be/Rv7itacp_to 
+
+-----------
+
 ## Isolation Portraits I-III
 
 Macumbista
