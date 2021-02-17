@@ -49,3 +49,13 @@ At the start of April 2020, as cities around the world locked down in response t
 Scan processing represents a crossover technique from early computer graphics in the 1960's to video synthesis in the 1970’s. Two famous scan processors are the Scanimate system and the Rutt/Etra video synthesizer used in the production of both commercial television graphics and works by artists such as Steina and Woody Vasulka, Gary Hill, and others. Similarly, Nam June Paik's Wobbulator demonstrated how the raster of the televised image can be manipulated by magnetic fields to reveal its absolutely artificial nature. As obsolete technology, scan processing represents the dreams, aspirations, and fears of the Cold War generation expressed through moving image. My approach to these portraits connects with the myriad selfie filters which members of the current generation use to express their own dreams, aspirations, and fears through social media.
 
 https://vimeo.com/434359232
+
+-----------
+
+## Sonic Graffiti in Digbeth
+
+Mr. Underwood
+
+I was recently commissioned by VIVID and Capsule to produce and install eight pieces of Sonic Graffiti in Digbeth, Birmingham. These are sound objects, embedded in the built environment. 
+
+http://www.mrunderwood.co.uk/news/sonic-graffiti/
